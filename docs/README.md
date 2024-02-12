@@ -3,7 +3,7 @@
 ## Research Incubators on perceptions of wealth (inequality)
 
 
-The  Spring School on perceptions of wealth inequality (SPINE) shall take place March 17 – March 28, 2025.
+The  Spring School on perceptions of wealth inequality (SPINE) shall take place:  
 
 
 
