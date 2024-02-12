@@ -18,7 +18,7 @@ Dr. Jan Schulz-Gebhard, University of Bamberg
 Dr. Daria Tisch, Max Planck Institute for the Study of Societies (MPIfG)
 
 
-**Call for participants:**  
+**Call for participants:**  July 2024  
 
 
 **Info:** 
