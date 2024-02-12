@@ -9,11 +9,12 @@ The  Spring School on perceptions of wealth inequality (SPINE) shall take place 
 
 **Date:**
 March 17 – March 28, 2025
+
 **Venue:**
-University of Bamberg
+University of Bamberg  
 Markusplatz 3, Bamberg, Germany
 
-**Organizers:**
+**Organizers:**  
 Prof. Dr. Daniel Mayerhoffer, University of Amsterdam
 Dr. Jan Schulz-Gebhard, University of Bamberg
 Dr. Daria Tisch, Max Planck Institute for the Study of Societies (MPIfG)
