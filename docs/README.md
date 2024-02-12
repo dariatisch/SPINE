@@ -1,4 +1,4 @@
-# SPINE: SCHOOL ON PERCEPTIONS OF WEALTH INEQUALITY
+
 
 ## Research Incubators on perceptions of wealth (inequality)
 
