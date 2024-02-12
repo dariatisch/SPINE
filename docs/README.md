@@ -1,3 +1,4 @@
+# SPINE
 ## Research Incubators on perceptions of wealth (inequality)
 
 
@@ -17,6 +18,10 @@ Dr. Jan Schulz-Gebhard, University of Bamberg
 Dr. Daria Tisch, Max Planck Institute for the Study of Societies (MPIfG)
 
 
+**Call for participants:**  
+
+
+**Info:** 
 The spring school will take the form of a research incubator and delve into the complex issue of wealth inequality perceptions, especially in welfare states like Germany. 
 This interdisciplinary initiative is designed as a collaborative melting pot where young scholars and established experts will jointly explore this multidimensional topic using a wide array of methods, from qualitative methods to panel regression analyses. 
 The research incubator will nurture seven diverse projects, all focusing on different aspects of wealth inequality perceptions. This approach seeks to build bridges across diverse fields, such as political and communication science, economics and sociology, fostering dialogue and cross-fertilisation between these traditionally parallel disciplines. 
