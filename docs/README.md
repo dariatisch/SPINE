@@ -28,6 +28,5 @@ A central goal is to generate new insights into whether (mis)perceptions of weal
 
 The Spring School on perceptions of wealth inequality (SPINE) is funded by the Volkswagen Foundation.  
 
-![VW](SPINE.png)
 ![VW](logo-vwstiftung-dark.svg)
 
