@@ -32,4 +32,5 @@ A central goal is to generate new insights into whether (mis)perceptions of weal
 
 
 ![VW](SPINE.png)
+![VW](logo-vwstiftung-dark.svg)
 
