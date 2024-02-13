@@ -2,10 +2,6 @@
 ## Research Incubators on perceptions of wealth (inequality)
 
 
-The  Spring School on perceptions of wealth inequality (SPINE) shall take place:  
-
-
-
 **Date:**
 March 17 – March 28, 2025
 
@@ -30,6 +26,7 @@ Embedded within the broader debate on wealth (re-)production systems and institu
 A central goal is to generate new insights into whether (mis)perceptions of wealth inequality serve as barriers or catalysts to societal transformation processes.
 
 
+The Spring School on perceptions of wealth inequality (SPINE) is funded by the Volkswagen Foundation.  
 
 ![VW](SPINE.png)
 ![VW](logo-vwstiftung-dark.svg)
