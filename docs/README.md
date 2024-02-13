@@ -29,3 +29,7 @@ Furthermore, practice stakeholders working on percep-ions of wealth inequality w
 Embedded within the broader debate on wealth (re-)production systems and institutions, this research incubator will cultivate an environment for an in-depth study of perception biases and the formation of justifying ideologies among different socioeconomic strata. 
 A central goal is to generate new insights into whether (mis)perceptions of wealth inequality serve as barriers or catalysts to societal transformation processes.
 
+
+
+![VW](SPINE.png)
+
