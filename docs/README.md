@@ -1,4 +1,4 @@
-## Research Incubators on perceptions of wealth (inequality)
+## Spring School on perceptions of wealth (inequality)
 
 
 **Date:**
