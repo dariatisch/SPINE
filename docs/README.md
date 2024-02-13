@@ -1,4 +1,3 @@
-# SPINE
 ## Research Incubators on perceptions of wealth (inequality)
 
 
