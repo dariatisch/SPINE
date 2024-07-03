@@ -33,6 +33,8 @@ Across different social groups and countries, individuals often perceive the dis
 The school will not focus on traditional teaching elements such as lectures  or seminars/tutorials. Instead, the two weeks in Bamberg will mostly comprise intense project work: There will be seven projects led by senior experts, which examine different aspects of inequality perceptions using various methods specifically fit for their respective research puzzles. Each participant will join one of these projects. Together, the project teams will work on their project throughout the school, making serious progress towards a publishable research paper. Along the way, participants will learn (more deeply) about the methods they use and the specific topic they study.
 
 **The Projects**
+
+
 **(Self-)perceptions of the global business elite**
 Diliara Valeeva, Amsterdam Institute for Social Science Research and Data Science Centre, University of Amsterdam
 
