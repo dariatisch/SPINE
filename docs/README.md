@@ -29,10 +29,10 @@ Across different social groups and countries, individuals often perceive the dis
 4.	**Inform the Public Discourse**: Executive summaries will be shared on the established platform ungleichheit.info.
 
 
-**The School as a Research Incubator**
+### **The School as a Research Incubator**
 The school will not focus on traditional teaching elements such as lectures  or seminars/tutorials. Instead, the two weeks in Bamberg will mostly comprise intense project work: There will be seven projects led by senior experts, which examine different aspects of inequality perceptions using various methods specifically fit for their respective research puzzles. Each participant will join one of these projects. Together, the project teams will work on their project throughout the school, making serious progress towards a publishable research paper. Along the way, participants will learn (more deeply) about the methods they use and the specific topic they study.
 
-**The Projects**
+### **The Projects**
 
 
 **(Self-)perceptions of the global business elite**
@@ -74,7 +74,7 @@ Franziska Disslbacher, Research Institute Economics of Inequality and the Depart
 Laila Schmitt, tba, LMU Munich
 
 
-**No participation fee, accommodation provided!**
+### **No participation fee, accommodation provided!**
 Accommodation (one-bed rooms) and meals (three/day) will be provided during the school free of charge to all participants. Participants must pay for their own travel costs. We have limited funding to support participants who can otherwise not get their travel expenses reimbursed. For sustainability reasons, we will not cover flights.
 
 **Apply Now – Deadline: August 31, 2024**
