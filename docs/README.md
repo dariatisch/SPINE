@@ -13,7 +13,7 @@ Dr. Jan Schulz-Gebhard, University of Bamberg
 Dr. Daria Tisch, Max Planck Institute for the Study of Societies (MPIfG)
 
 
-**Application deadline:**   2024  
+**Application deadline:**   August 31, 2024  
 
 
 **Info:** 
