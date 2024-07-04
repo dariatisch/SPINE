@@ -15,6 +15,8 @@ Dr. Daria Tisch, Max Planck Institute for the Study of Societies (MPIfG)
 
 **Application deadline:**   August 31, 2024  
 
+[###**APPLY NOW**](https://forms.office.com/e/F6FqBHid0K) 
+
 
 **Info:** 
 We are pleased to announce the Spring School on Perceptions of Wealth Inequality, funded by the Volkswagen Foundation. This interdisciplinary research incubator aims to explore perceptions of wealth inequality from different perspectives. The Spring School will bring together young scholars and established experts from diverse fields such as political and communication science, economics, history, and sociology.
