@@ -15,7 +15,7 @@ Dr. Daria Tisch, Max Planck Institute for the Study of Societies (MPIfG)
 
 **Application deadline:**   August 31, 2024  
 
-### APPLY[**HERE**](https://forms.office.com/e/F6FqBHid0K) 
+### APPLY [**HERE**](https://forms.office.com/e/F6FqBHid0K) 
 
 
 **Info:** 
