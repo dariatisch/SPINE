@@ -11,6 +11,7 @@ University of Bamberg, Markusplatz 3, Bamberg, Germany
 Daniel Mayerhoffer, University of Amsterdam  
 Jan Schulz-Gebhard, University of Bamberg  
 Daria Tisch, Max Planck Institute for the Study of Societies (MPIfG)
+
 Hannah Olbrich, University of Bamberg 
 
 
@@ -91,7 +92,7 @@ Together with the experts, we will evaluate applications based on the likelihood
 
 
 
-
+**Contact**: tisch@mpifg.de
 
 The Spring School on perceptions of wealth inequality (SPINE) is funded by the Volkswagen Foundation.  
 
