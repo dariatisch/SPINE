@@ -8,9 +8,10 @@ March 17 – March 28, 2025
 University of Bamberg, Markusplatz 3, Bamberg, Germany
 
 **Organizers:**  
-Prof. Dr. Daniel Mayerhoffer, University of Amsterdam  
-Dr. Jan Schulz-Gebhard, University of Bamberg  
-Dr. Daria Tisch, Max Planck Institute for the Study of Societies (MPIfG)
+Daniel Mayerhoffer, University of Amsterdam  
+Jan Schulz-Gebhard, University of Bamberg  
+Daria Tisch, Max Planck Institute for the Study of Societies (MPIfG)
+Hannah Olbrich
 
 
 **Application deadline:**   August 31, 2024  
