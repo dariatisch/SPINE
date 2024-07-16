@@ -11,7 +11,7 @@ University of Bamberg, Markusplatz 3, Bamberg, Germany
 Daniel Mayerhoffer, University of Amsterdam  
 Jan Schulz-Gebhard, University of Bamberg  
 Daria Tisch, Max Planck Institute for the Study of Societies (MPIfG)
-Hannah Olbrich
+Hannah Olbrich, University of Bamberg 
 
 
 **Application deadline:**   August 31, 2024  
