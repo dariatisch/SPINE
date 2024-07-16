@@ -16,13 +16,16 @@ Daria Tisch, Max Planck Institute for the Study of Societies (MPIfG)
 
 Hannah Olbrich, University of Bamberg 
 
+**Keynote speakers:**  
+
+Fabian Pfeffer, LMU Munich
 
 **Application deadline:**   August 31, 2024  
 
 ### APPLY [**HERE**](https://forms.office.com/e/F6FqBHid0K) 
 
 
-**Info:** 
+### **Info:** 
 We are pleased to announce the Spring School on Perceptions of Wealth Inequality, funded by the Volkswagen Foundation. This interdisciplinary research incubator aims to explore perceptions of wealth inequality from different perspectives. The Spring School will bring together young scholars and established experts from diverse fields such as political and communication science, economics, history, and sociology.
 
 Why Perceptions of Wealth Inequality?
