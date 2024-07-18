@@ -18,6 +18,8 @@ Hannah Olbrich, University of Bamberg
 
 **Keynote speakers:**  
 
+Luna Bellani, University of Ulm
+
 Fabian Pfeffer, LMU Munich
 
 **Application deadline:**   August 31, 2024  
