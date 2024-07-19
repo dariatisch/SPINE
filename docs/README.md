@@ -76,9 +76,14 @@ Eva Gajek, Max Planck Institute for the Study of Societies, Cologne
 
 The project investigates the connection between statistical surveys of wealth and their scientific and public discussions in the long 20th century in Germany. How and when were numerical surveys of wealth problematized, when did they lead to scandals and how and when did a broad public use figures to communicate about its social structure? The project focuses on three time periods: from the turn of the century to 1914, from the 1960s/to 1970s and from 2001-2010. All three periods were characterized by a strong public discussion about wealth inequality after statistical figures were published and provoked a broad, but also scientific debate that problematized or scandalized the published figures. The empirical basis of the project is a wide range of source material such as statistical surveys, media texts, but also scientific studies.
 
-**tba**
+**Wealth Perceptions and Preferences for Taxation and Environmental Policies**
 
 Franziska Disslbacher, Research Institute Economics of Inequality and the Department Socioeconomics at WU, Vienna University of Economics and Business
+
+
+Wealth manifests not only in its levels but also in its origins and uses. Wealth, resulting from savings and intergenerational transfers, serves various purposes, from savings for a rainy day at the bottom to the exercise of power at the top of the distribution. Notably, research has shown that perceptions of economic positions and inequality, rather than actual economic status, significantly influence attitudes and behaviors. Building on this, our project aims to explore how subjective relative wealth, together with beliefs about the individual origin and use of wealth, affects preferences for redistribution, focusing on taxation and climate policies. To gather relevant data, we will design and conduct a representative survey, including an experimental component. Understanding perceived wealth is crucial for unraveling the mechanisms behind the legitimization of wealth and its distribution, and the interaction between the acceptance of specific redistributive and environmental policies.
+
+
 
 **Perceptions of Wealth Inequality Survey**
 
