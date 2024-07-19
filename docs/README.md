@@ -87,7 +87,7 @@ Wealth manifests not only in its levels but also in its origins and uses. Wealth
 
 **Perceptions of Wealth Inequality Survey**
 
-Laila Schmitt, tba, LMU Munich
+Laila Schmitt, LMU Munich
 
 The perception of wealth distribution - how exactly people perceive actual wealth at the lower and upper ends of the wealth distribution - is complex. This complexity arises from the multifaceted nature of wealth, which includes assets, savings and debt, and the difficulty of directly observing these dimensions, as is the case with perceptions of income distribution based on earnings for occupations. This study attempts to measure the perceptions of wealth inequality by asking a nationally representative online survey to estimate the average assets, savings and debt required to belong to certain wealth percentiles. To understand the determinants of these perceptions, we will also collect data on beliefs about the methods of wealth acquisition.
 
