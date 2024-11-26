@@ -92,11 +92,14 @@ The perception of wealth distribution - how exactly people perceive actual wealt
 ### **No participation fee, accommodation provided!**
 Accommodation (one-bed rooms) and meals (three/day) will be provided during the school free of charge to all participants. Participants must pay for their own travel costs. We have limited funding to support participants who can otherwise not get their travel expenses reimbursed. For sustainability reasons, we will not cover flights.
 
-
+Findings of successful projects will be published in a special issue in the journal **Historical Social Research**. For this special issue we alo have an [open call](call_si.md) for papers
 
 **Contact**: SPINE@posteo.de
 
 The Spring School on perceptions of wealth inequality (SPINE) is funded by the Volkswagen Foundation.  
+
+
+
 
 ![VW](logo-vwstiftung-dark.svg)
 
