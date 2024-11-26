@@ -22,9 +22,6 @@ Luna Bellani, University of Ulm
 
 Fabian Pfeffer, LMU Munich
 
-**Application deadline:**   August 31, 2024  
-
-### APPLY [**HERE**](https://forms.office.com/e/F6FqBHid0K) 
 
 
 ### **Info:** 
@@ -94,13 +91,6 @@ The perception of wealth distribution - how exactly people perceive actual wealt
 
 ### **No participation fee, accommodation provided!**
 Accommodation (one-bed rooms) and meals (three/day) will be provided during the school free of charge to all participants. Participants must pay for their own travel costs. We have limited funding to support participants who can otherwise not get their travel expenses reimbursed. For sustainability reasons, we will not cover flights.
-
-**Apply Now – Deadline: August 31, 2024**
-
-We invite applications from advanced master students,  PhD students and  early-career researchers. We welcome applicants from all backgrounds and fields of study. There are no restrictions based on citizenship, country of study, or country of employment. About 20 participants will be invited.
-For a successful application, you do not need to be an expert on wealth inequality perceptions,  nor on the methods to be applied. Yet, you should demonstrate your commitment and ability to quickly gather the knowledge and skills necessary to effectively participate.
-Together with the experts, we will evaluate applications based on the likelihood that the applicant will contribute to the success of the project and everyone else’s educational experience as well as the likelihood of the participant to benefit from participating in terms of their learning and networking. We will take into account the applicant's career stage and previous educational opportunities. To apply, please fill in this form, which contains a few questions on your background and asks for a short statement of motivation (max. 500 words) which details your commitment to actively participate in the research incubator: 
-[APPLY NOW](https://forms.office.com/e/F6FqBHid0K) 
 
 
 
