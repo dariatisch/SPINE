@@ -1,5 +1,5 @@
 # Spring School on perceptions of wealth (inequality)
-![spine](SPINE.png)
+<!-- ![spine](SPINE.png) -->
 
 **Date:**
 March 17 – March 28, 2025
