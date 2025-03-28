@@ -46,7 +46,7 @@ At the full-paper stage, submissions will undergo a rigorous peer-review process
 
 **How to Submit** 
 
-Extended abstracts and manuscripts should be prepared according to the journal's submission guidelines and submitted via [Microsoft Forms](https://forms.office.com/e/scqbJdzBbG) 
+Submission is closed.
 
 **Commitment to Equity and Inclusion** 
 
