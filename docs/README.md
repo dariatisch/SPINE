@@ -5,7 +5,7 @@
 March 17 – March 28, 2025
 
 **Venue:**
-University of Bamberg, Markusplatz 3, Bamberg, Germany
+University of Bamberg, Germany
 
 **Organizers:**  
 Daniel Mayerhoffer, University of Amsterdam  
