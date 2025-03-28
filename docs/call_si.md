@@ -38,7 +38,7 @@ August 15, 2025: Submission of manuscripts
 
 September 2025 – April 2026: Reviews and revisions, with online first publication for articles whose revision process is finished earlier 
 
-October 8, 2025: Online author conference 
+September 16, 2025: Online author conference 
 
 May 2026: Publication of the Special Issue 
 
